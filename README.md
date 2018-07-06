@@ -1,3 +1,1 @@
-# motivationalink
-# mcl
 # mcl
